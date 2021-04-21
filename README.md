@@ -1,2 +1,3 @@
 # Master-Chef
 Chicken and Rice
+After the chicken has cooked and the meat is falling off the bone (at least an hour, but the more the bettah), remove the chicken and let cool slightly in order to debone. While the chicken is cooling I usually let the broth reduce a bit more. When chicken is deboned, I remove all of the broth (or use another large pot) and put about 6 cups of broth back into the pot with 3 cups of rice and the deboned chicken. Add additional salt and pepper, cover and simmer on low for 15 minutes. Stir rice and add another cup of broth, cover and cook an additional 5 minutes. Continue the process by simmering covered and stirring in more broth every 5 minutes or so, until rice is done. Add additional salt and pepper to taste.
